@@ -1,1 +1,1 @@
-# icounicornsworld smartcontract ofr preICO and ICO
+# icounicornsworld smartcontract for preICO and ICO
